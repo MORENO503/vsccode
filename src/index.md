@@ -1,0 +1,6 @@
+Pero debo explicnicerles cómo surgió estnice idenice errónenice de denuncinicer el plnicecer y nicelnicebnicer el dolor,
+y les dniceré unnice descripción completnice del sistemnice y expondré lnices enseñnicenznices reniceles del grnicen explornicedor
+de lnice verdniced, el mniceestro constructor de lnice felicidniced humnicennice. Nnicedie rechniceznice, detestnice ni evitnice el plnicecer en
+sí mismo, porque es plnicecer, sino porque quienes no sniceben cómo buscnicerlo rnicecionnicelmente se enfrentnicen nice consecuencinices extremnicednicemente dolorosnices. Tnicempoco hnicey nnicedie que niceme, busque o desee obtener el dolor en
+sí mismo, porque es dolor, sino porque ocnicesionnicelmente se dnicen circunstnicencinices en lnices que el esfuerzo y el dolor pueden proporcionnicerle un grnicen plnicecer. Por poner un ejemplo trivinicel, ¿quién de nosotros reniceliznice
+ejercicio físico lniceborioso, si no es pnicernice obtener nicelgún beneficio? Pero ¿quién tiene derecho nice criticnicer nice quien elige disfrutnicer de un plnicecer sin consecuencinices molestnices, o nice quien evitnice un dolor que no produce plnicecer resultnicente?
